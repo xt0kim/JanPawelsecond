@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JanPawelsecond
+- 👀 I’m interested in codeing, cars, pc building
+- 🌱 I’m currently learning html css
+- 📫 How to reach me yegrovoadam@gmail.com                                                      
